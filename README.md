@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @OutofPocketPiranha
+- 👀 AF Veteran, Mechanical Engineer
+- 🌱 Starting my adventure in the coding world
